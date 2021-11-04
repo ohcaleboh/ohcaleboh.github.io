@@ -1,13 +1,29 @@
+# Fear 
 
+> “I must not fear. Fear is the mind-killer. Fear is the little-death that brings total obliteration. I will face my fear. I will permit it to pass over me and through me. And when it has gone past I will turn the inner eye to see its path. Where the fear has gone there will be nothing. Only I will remain.”
 
-It is interesting what ideas, images, and experiences resonate deeply with people. There is no telling what kind of memories can be triggered by a word or idea in one person versus another. But, I think that on the opposite extreme, we do have artificially constructed experiences that are similarly experienced across all people (e.g., good fiction, movies, or VR video games).
+― Frank Herbert, Dune
 
-But, I tend to skew more towards believing that people all experience things idiosyncratically. The implication is that many of my ideas and convictions are not captivating for one subset of the population, but is for another. So, where am I going with this?
+I realize that so much of what draws me into the book Dune is the character of Paul Atreides. 
 
-My life goal is to challenge people to think about themselves, other people, and the world more deeply. I realize that some ideas that resonate with me will not resonate with some people but will with others. I also have this tendency to be paralyzed with fear, thinking my ideas are crude and lacking and should therefore be hidden until it has been vetted from every angle before sharing my findings with the rest of the world.
+If you don't already know, Dune is dystopian sci-fi novel where the protagonist Paul Atreides is navigating a complicated life as the son of a Duke. Without getting too caught up in the details, Paul is pretty much groomed to become the next Duke of the House of Atreides, which involves a shit load of training. 
 
-But, the problem with sanitizing and ingratiating myself to everyone is that I fail to say anything with any sort of potency. I might as well say nothing than to say something that is so bland that it cateries to everyone.  I look at all the memoirs and biographies of the greatest people who have lived, and I realized that all across the board, the most memorable and impactful people were the ones who had the courage to let their ideas be known, to be put under scrutiny without, to forsaken the natural tendency to dwell on all the things that could go wrong.
+Part of his training requries him to control his animal instincts --overcome fear and pain-- with his mental faculties, something that demonstrates his humanity. 
 
-The key point is that memorable people think of something great and put their ideas and work out in the open without thinking too much about whether people will like it. Then, they move on and find more things that are important to them and report it to the world. They rinse and repeat. Many times, they even contradict what they had once said –most famous people do. But, I actually think this is a good thing. It means that they have created such an overabundance of material that they have people from so many different walks of life who have been touched by at least one thing that the person had said in the past.
+I was so fascinated by the way that Paul talked about his own fear in the novel. He describes fear as a "mind-killer". 
 
-So, mark my words, I will put myself and my work out there. I will be earnest and hardworking in all that I do, but when it comes time to submit my ideas to the world, I will not hesitate. My life is too short to live with fear of what people think about me. I would be remiss to live a life locked up in my mind. I will challenge myself and try my best to the things that I think are most important to me at my current station in life. I will have a dogged attitude and believe long after all have given up and forgotten. I will  put my work out there even if I am reservations, so long as it came from a desire to do good in the world. So long as my convictions are aligned with the idea that I am trying to convey. So long as I can stand before my creator and say that I did my best with this life, that I am ready for the day of judgment if the world ended this very moment.
+The more I thought about fear in my own life, I realized that it is a mind-killer! So often, when I am afraid --typically in the form of exposure to physical or mental pain-- I realize that my first instinct is to immediately resist or purge the fear. 
+
+For instance, I was at the Korea bank and the teller asks me in Korean what I am doing here. Immediately, I wanted to express to her that I was here to set up a recurring monthly payment for my housing & phone bill. But, due to novice level Korean, I wasn't able to say what I precisely came here to say. I could see the agitation in the face of the tell, I could hear the restless shuffling of the people waiting in line behind me. 
+
+In this situtation, I just wanted to tell the banker that all this was a mistake, that I'd be back tomorrow with the proper materials --even though I had all materials with me right there in my backpack. 
+
+But, before I let this mini, fear-induced crisis to decide my next steps, I remembered that fear is the mind-killer. 
+
+I drew a deep breath, and I let the fearful thoughts pass through me without judgement. My heart rate slowed, I got to look at the sitatuion from an outside perspective. Next, I looked at the bankteller, told her in Korean to wait a moment. Then, taking my time, I drew out my phone and putting my thoughts down into a Korean -> English translation app. 
+
+The bankteller read the translation and swiftly helped me accomplish everything that I needed help with.
+
+What a wonderful expreince that was. I've been learning lately that controling my animal instincts, refusing to give way to my raging emotions throughout my day, is an incredibly important skill. 
+
+With the help of the Book Dune, I've come to the conclusion that fear is a choice, and one that I will have been succumbing to for far too long. I resolve to train myself never to fear, but to allow fear to pass through and over me, and eventually out of me so that in all my actions I remain acting without fear. 
